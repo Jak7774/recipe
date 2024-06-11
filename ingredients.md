@@ -5,3 +5,4 @@
 * Add Corriander (1 tsp)
 * 10 tsp Chillies (for extra spice)
 * Serve Cold
+* Chop chillies and place ontop
