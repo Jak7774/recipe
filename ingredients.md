@@ -3,3 +3,4 @@
 * 2 tsp salt
 * 1/2 onion
 * Add Corriander (1 tsp)
+* Serve Cold
